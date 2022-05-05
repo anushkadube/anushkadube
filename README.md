@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @anushkadube
+- 👀 I’m interested in reading
+- 🌱 I’m persuing M.Tech
